@@ -3,4 +3,4 @@ Yes, for you.
 
 We will miss you
 
-¡Que te vaya bonico maño!
+¡Que te vaya bonico, maño!
